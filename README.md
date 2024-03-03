@@ -12,3 +12,4 @@ jjj
 bandz
 lfggg
 x man
+s!ck
